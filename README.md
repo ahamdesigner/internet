@@ -1,7 +1,6 @@
-Global connection
-#  Connection
-introduce lekshmi and vidya
-#  Network
-connected with brahmi lang
-#  Access
-All for good debug and ethical access grand for ahamdesigner syam
+सार्वलौकिक सम्पर्क
+स्तायति लक्ष्मी च विद्या
+#  जालकृति
+योजित सार्धम् ब्रह्मी उपक्रमभाषा
+#  अभिगमन-उपाय
+सम्यच् दोषानुसन्धान च अभिगमन-उपाय भाव्य अहं श्याम्
